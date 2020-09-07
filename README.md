@@ -1,1 +1,1 @@
-# rsschool-cv
+https://MalishBob.github.io/rsschool-cv/cv
